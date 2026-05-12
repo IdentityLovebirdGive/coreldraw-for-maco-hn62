@@ -1,4 +1,4 @@
-# 
+# Enhance CorelDRAW for macOS with professional CorelDRAW for macOS Plugin | masking tools + grid systems, the #1 plugin. Includes masking tools and grid systems for a smoother and
 
 
 
